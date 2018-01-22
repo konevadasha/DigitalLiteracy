@@ -17,5 +17,5 @@
 * Телефон `89859061378`  
 
 ## Фоточка прилагается 
-![](https://d.radikal.ru/d03/1801/79/b32aefc39722.jpg)
+![](http://s1.radikale.ru/uploads/2018/1/22/882d8fcf0ef2d95dad203efc201474cd-full.jpg)
 
